@@ -1,2 +1,3 @@
 # All-Salobre-s-Basicals-Series-Open-Sources-Projects-Archives-Series-Released
-A for to the few days ago in a educational game.
+
+All Salobre s` Christmas Bash! Open Sources Editions Projects Series Released.
